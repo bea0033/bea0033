@@ -3,4 +3,4 @@
 - *Quero aprender mais sobre tecnologia*🔍
 - *Gosto de ler*📖
 
-![](https://media1.tenor.com/m/WcT5sqK21pAAAAAC/toothless-dance-cat-toothless-cat.gif)
+![](https://media1.tenor.com/m/bM2ahcMULzQAAAAC/us.gif)
